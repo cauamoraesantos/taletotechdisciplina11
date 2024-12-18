@@ -1,0 +1,2 @@
+# taletotechdisciplina11
+DISCIPLINA 11 DO CURSO TALENTO TECH
